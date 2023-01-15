@@ -148,9 +148,10 @@ About 9 weeks pass, and in that time I receive the same PROVINCIAL PUBLIC DEBT t
 
 Chris Schulte is the landscaper who beat everyone to the END of the TENDER FOR LAW, he was the first to say that **"ACCOUNTING is the MECHANISM by which the STORY of the TRANSFER of SURETY, is told"**. It appears we are being told a bullshit story as surety is ON THE RECORD AS BEING RECEIVED by the PUBLIC SERVANT, and she perpetually refuses to answer our questions. We send this notice, and COPIES OF EVERYTHING ELSE WE HAVE right back at this stupid or vindictive cunt.
 
+![image](https://user-images.githubusercontent.com/94795740/212237954-b9a9c067-dee5-436d-8185-623f0dd066e2.png)
+
 Fast forward a Month later ["Eby, who took over as premier from John Horgan last month, refused to describe Robinson's new portfolio of post-secondary education and future skills as a demotion at a news conference following the ceremony."](https://archive.is/8ODQX) and It appears the Minister was "demoted". So the new PUBLIC SERVANT can pretend she doesn't know when I ask the questions again, because what other questions would I ask government employees who demand money from me?
 
-![image](https://user-images.githubusercontent.com/94795740/212237954-b9a9c067-dee5-436d-8185-623f0dd066e2.png)
 
 **Can they answer the question, or not?**
 
