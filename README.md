@@ -107,7 +107,7 @@ I reasonably believe that I understand the Bills of Exchange Act, these are sign
 
 ---
 
-I found the suggestion to contact a "POLICY analyst" to be UNREASONABLE, who is more account-able than the MINISTER in charge of FINANCES? So I decided to ASK THE QUESTION until I received a PROPER RESPONSE from these PUBLIC SERVANT/TRUSTEES. The next thing to do was to notify the Minister that an unnamed agent responded to us, and that I believe there had been a MISTAKE. I let the Minister know there are some liens and that there will be [more liens](https://www.bcregistry.gov.bc.ca/ppr-marketing/). Remember, the NOTICE OF MISTAKE is a perfectly written document; anyone who modifies one letter of it without understanding **WHY** will land you in jail. I NEVER sign notices that i'm sending the government, should I ever **need** to sign anything, I ALWAYS qualify EVERY signature with per:, for:, or by:.
+I found the suggestion to contact a "POLICY analyst" to be UNREASONABLE, who is more account-able than the MINISTER in charge of FINANCES? So I decided to ASK THE QUESTION until I received a PROPER RESPONSE from these PUBLIC SERVANT/TRUSTEES. The next thing to do was to notify the Minister that an unnamed agent responded to us, and that I believe there had been a MISTAKE. I let the Minister know there are some liens and that there will be [more liens](https://www.bcregistry.gov.bc.ca/ppr-marketing/). Remember, the NOTICE OF MISTAKE is a perfectly written document; anyone who modifies one letter of it without understanding **WHY** will land an IDIOT in jail. I NEVER sign notices that i'm sending the government, should I ever **need** to sign anything, I ALWAYS qualify EVERY signature with per:, for:, or by:.
 
 I also have a POSTNUPTIAL agreement that I wrote and understand because the government hates a functioning married couple, so I send this to let them know they should just give up.
 
@@ -142,7 +142,7 @@ Anti-semite? I don't [NOAH](https://www.un.org/ecosoc/sites/www.un.org.ecosoc/fi
 
 About 9 weeks pass, and in that time I receive the same PROVINCIAL PUBLIC DEBT that I did not ask for. I have not received the response that I asked for. Is this **woman** stupid? or evil? 
 
-![image](https://user-images.githubusercontent.com/94795740/212237954-b9a9c067-dee5-436d-8185-623f0dd066e2.png)
+![image](https://user-images.githubusercontent.com/94795740/212562419-2392bdba-83d6-4350-aed0-3f28043521d5.png)
 
 ---
 
@@ -150,7 +150,11 @@ Chris Schulte is the landscaper who beat everyone to the END of the TENDER FOR L
 
 Fast forward a Month later ["Eby, who took over as premier from John Horgan last month, refused to describe Robinson's new portfolio of post-secondary education and future skills as a demotion at a news conference following the ceremony."](https://archive.is/8ODQX) and It appears the Minister was "demoted". So the new PUBLIC SERVANT can pretend she doesn't know when I ask the questions again, because what other questions would I ask government employees who demand money from me?
 
+![image](https://user-images.githubusercontent.com/94795740/212237954-b9a9c067-dee5-436d-8185-623f0dd066e2.png)
+
 **Can they answer the question, or not?**
+
+---
 
 The Canada Revenue Agency seemed compelled to respond after we liened their account. They tell me they are returning my correspondence and then only return copies of such + their modifications to my instrument.
 
@@ -167,5 +171,5 @@ The Canada Revenue Agency seemed compelled to respond after we liened their acco
 
 ---
 
-This is on git-hub so it can't be deleted, If this repo looks "mysterious" I [promise](https://legal-dictionary.thefreedictionary.com/Promise) its just because you're lazy and/or stupid.
+This is on github so it can't be deleted, If this repo looks "mysterious" I [promise](https://legal-dictionary.thefreedictionary.com/Promise) its just because you're lazy and/or stupid.
 
